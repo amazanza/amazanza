@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @amazanza
 - 👀 I’m interested in graphic design, photography, video
 - 🌱 I’m currently learning Digital Culture
-- 💞️ I’m looking to collaborate on am essay
+- 💞️ I’m looking to collaborate on an essay
 - 📫 How to reach me: email 
 
 <!---
